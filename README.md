@@ -1,1 +1,1 @@
-# Hi there, I'm Mitra Abhi Sura!
+# Hi there, I'm Mitra
