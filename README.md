@@ -1,1 +1,1 @@
-# Hi there, I'm Mitra
+# Hi there
